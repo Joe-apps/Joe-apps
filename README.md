@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning so be patient and all help is welcome
 - 💞️ I’m looking to collaborate on a project relted to airbnb for transport vehicles (cars, motos, planes, boats, RV, etc)
 - 📫 How to reach me jmurua.fx@gmail.com
-- 😄 Pronouns: we can do it
+- 😄 Pronouns: he/him... together we can do it
 - ⚡ Fun fact: meet new people
 
 <!---
